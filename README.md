@@ -1,2 +1,2 @@
-# Riska-Tercinta
-Untuk Ceweku Tercinta.github.com
+# Riska-Tercinta.github.com
+Untuk Ceweku Tercinta
